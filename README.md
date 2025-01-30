@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @rosasdelaluna
+- 👀 I’m interested in sketching, and making music
+- 🌱 I’m currently learning IT fundamentals
+- 💞️ I’m looking to collaborate on anything music related
+- 📫 How to reach me: kaalch18@gmail.com 
+- 😄 Pronouns: any
+- ⚡ Fun fact: I can bend my thumb all the way
